@@ -15,8 +15,9 @@
 > and organizing, \
 > it is our right! 
 
+The words and music are in a YouTube video, [When One People](https://youtube.com/shorts/5VCSDaBANaI).
 
-The beginning of the Declaration of Independence appears below. The words in **bold** are quoted in the song "When One People."
+The beginning of the Declaration of Independence appears below. The words in **bold** are quoted in the song.
 
 **When** in the Course of human events, \
 it becomes necessary for **one people** \
